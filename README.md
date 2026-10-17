@@ -220,4 +220,4 @@ FEAR is available as a full free version, providing complete access to all featu
 Get ready to experience the fear and thrill of FEAR! Download now and immerse yourself in this extraordinary gaming adventure.
 
 ---
-**Last updated:** 2026-10-17 15:07:06 UTC
+**Last updated:** 2026-10-17 18:13:49 UTC
